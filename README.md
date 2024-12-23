@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @FellowJhanya
-- 👀 I’m interested in coding
+- 👀 I’m interested in doing anything
 - 🌱 I’m currently learning half of everything
-- 💞️ I’m looking to collaborate with everyone
-- 📫 How to reach me: discord/ search the user name bboooooooo
+- 
 - ⚛️
 
 <!---
